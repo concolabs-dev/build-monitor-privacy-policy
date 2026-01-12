@@ -118,5 +118,5 @@ We may update this Privacy Policy from time to time. If we make important change
 ## 11) Contact us
 If you have questions or requests about privacy, contact:
 
-**Email:** support@yourdomain.com  
-(Replace this with your real support email)
+**Email:** ashan@concolabs.com  
+**Email:** subodha162@gmail.com  
